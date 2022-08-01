@@ -8,8 +8,6 @@
 
 • 📫 Email: vicenteceja123@gmail.com
 
-• 📄 Resume: [https://drive.google.com/file/d/10u8PQSRdGS94WMkz57IluMj8xutrAF50/view?usp=sharing](https://drive.google.com/file/d/10u8PQSRdGS94WMkz57IluMj8xutrAF50/view?usp=sharing)
-
 • ⚡ Fun fact: On my free time, I love to record music, cook and workout
 
 <h3 align="left">Connect with me:</h3>
